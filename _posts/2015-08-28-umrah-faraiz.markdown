@@ -5,8 +5,6 @@ date:   2015-08-28 18:07:58
 categories: hajj umrah
 ---
 
-Umrah Faraiz
-
 - 2 Nafl before Ihram, can wear Ihram from home (niyaat after takeoff)
 - For Ihram you need to make Niyat, then recite 3 times Talbiya
 - Landing at Jeddah airport, bus to Makkah.

@@ -5,8 +5,6 @@ date:   2015-08-29 18:07:58
 categories: hajj umrah ihram
 ---
 
-Ihram Faraiz
-
 - Two white sheets, cotton or towel options available
 - Ihram should cover belly button to knees (Sattar)
 - No brushing teeth, using scented soap or perfume
