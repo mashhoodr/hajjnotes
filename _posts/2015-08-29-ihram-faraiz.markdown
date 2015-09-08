@@ -13,7 +13,7 @@ categories: hajj umrah ihram
 - Wearing belt around Ihram allowed?
 - Before Ihram:
      - Ghusal
-     - Trip nose hair
+     - Trim nose hair
      - Shave
 - How to wear (bottom)
      - Spread behind your legs, holding each end in one hand

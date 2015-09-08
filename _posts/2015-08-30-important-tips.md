@@ -6,8 +6,8 @@ categories: hajj umrah tips
 ---
 
 - Wear your ID badge at all times (given to you after you arrive in Jeddah / Makkah).
-- Focus on the task at hand (i.e. if doing Tawaf think about its faraiz)
-- No need to hurry or rush at any point
+- Focus on the task at hand (i.e. if doing Tawaf think about its faraiz, how to complete it in the best way possible)
+- No need to hurry or rush at any point. You should not be worried about getting left behind.
 - Wear Ihram at home but do not make Niyat until after take off. Can also wear the Ihram in flight.
 - Talbiya is the most important prayer.
 - Make sure all luggage has your name tag, maktab (you will get it in Makkah) and address
