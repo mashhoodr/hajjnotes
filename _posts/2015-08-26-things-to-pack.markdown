@@ -5,13 +5,14 @@ date:   2015-08-26 18:07:58
 categories: hajj
 ---
 
-Below is a list of things which will (most probably) be needed during the trip. These things can be packed before leaving, or can be bought from there as well. 
+Below is a list of things which will (most probably) be needed during the trip. These things taken with, or can be bought from there as well. From experience, its best to take the minimum amount (essentials) of things from there, most things can be easily bought from there.
 
 - Slippers (flip-flops, chappals)
 - Socks
 - Sneakers
 - Cloth bag for keeping shoes
 - Multi-blade pocket knife
+- Hand fan
 
 - Nail clipper
 - Small scissors
@@ -22,13 +23,13 @@ Below is a list of things which will (most probably) be needed during the trip. 
 - Deodorant,
 - Small vaseline,
 - Shampoo
-- Tissue roll x 2
+- Tissue rolls
 
 - Small Musalla (i.e. prayer rug),
 - Tasbeeh,
 - Tasbeeh for Tawaf
 - Pocket Quran / Dua book
-- Pen / Pencil / Notebook.
+- Pen / Pencil / Notebook
 
 - Inflatable pillow.
 - Baseball cap,
